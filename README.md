@@ -1,4 +1,4 @@
-- 👋 meu nome é ingrid
+- 👋 meu nome é Yngrid
 - 👀 gastronomia
 - 🌱 cozinhar
 - 💞️ escuta musica
