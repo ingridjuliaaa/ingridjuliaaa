@@ -1,7 +1,7 @@
 - 👋 meu nome é ingrid
 - 👀 gastronomia
 - 🌱 cozinhar
-- 💞️ 
+- 💞️ escuta musica
 - 📫 instagram 
 
 <!---
